@@ -1,3 +1,3 @@
 
-Software engineer | Web Guru | Tech Geek 
+Software engineer | Web Guru 
 
